@@ -17,7 +17,3 @@ ujyt
 jty
 jt
 fhgg
-h
-s
-t
-e
