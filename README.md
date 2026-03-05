@@ -1,5 +1,3 @@
-/* Tova e proba da vidish nqkvi tupi pormeni
-asd
-
-hfdh hfg hfghgfh
+/* Tova e proba da vidish 
+nqma da pishe tova povehce
 
