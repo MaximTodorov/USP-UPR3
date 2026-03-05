@@ -9,16 +9,6 @@ asf
 as
 fds
 gdf
-hdfg
-h
-h
-dh
-d
-df
-gfsd
-gs
-gsf
-af
 a
 fdsa
 df
